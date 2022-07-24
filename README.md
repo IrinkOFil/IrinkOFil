@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-👩‍🎓 I love tudying and learning new skills.
+👩‍🎓 I love studying and learning new skills.
 
 😍 SQL is my passion!
 
